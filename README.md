@@ -1,4 +1,1 @@
-tatava yapma emine
-fasdasdasd
-gadasdasdas
-fasd123
+hadi artık aga
